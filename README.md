@@ -1,0 +1,1 @@
+I'm Frank Saunders Jr, philosophy professor turned data analyst. I've spent the past decade in Asia studying Chinese thought and culture and have now sought to incorporate data into my analyses and put my insights to work to improve data accessability and solve business problems.  
